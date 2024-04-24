@@ -1,0 +1,5 @@
+#Sarah Heffelfinger
+My project is about how hoary bats travel and have adventures and the many challanges they have to face including large kiling machines aka windmills, that benefit other species and the enironment but directly kill hoary kind and the like. 
+Hoary bats have made an alyiance with hawks as they are also enemies with the giant killng machines yet other bat types are not spared from the hawks claws, this has caused conflict amoung hoary bats and other bat species such as the red bats that also travel and get affacted by giant killing machines.
+Red bats would be in aliance with hawks but the red tailed hawks beleave they are the only honorary red animal and the best of the flying red animals of all.
+The hoarys contuniue though their advantures one specific hoary has developed an odd relationshop with a red bat and a juvanile red tailed orphaned hawk. They will go though the challanges of their anccestory but also their very own unique challandes of being a team amoung controversy and hate from all sides.
